@@ -1,6 +1,3 @@
+![hsr-stelle](https://github.com/user-attachments/assets/64771238-b4ff-466a-a170-4a9300cfe1c3)
 ## i really like stelle..
-
-<!--
-**DOGq3/DOGq3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-check out my [STEAM!] (https://steamcommunity.com/profiles/76561199133856962/) 
+check out my [STEAM!](https://steamcommunity.com/profiles/76561199133856962/) 
