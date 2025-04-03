@@ -1,3 +1,1 @@
-![hsr-stelle](https://github.com/user-attachments/assets/64771238-b4ff-466a-a170-4a9300cfe1c3)
-
-i really like stelle...
+https://github.com/DOGq3/DOGq3/blob/177ea6e2a31bfe1f8b7ae10dc3497802ff8242f7/Screenshot%202025-04-03%20141719.png
