@@ -1,11 +1,3 @@
-![Image](https://github.com/user-attachments/assets/eaaecc78-7b9d-418e-8a0d-b9cfa9807759)
-$${\color{white}White}$$ ,,,,, ![Image](https://github.com/user-attachments/assets/459110f5-a974-437e-9f37-fecfd46cd121)
-##  ![Image](https://github.com/user-attachments/assets/a1ca07d1-2e25-4e3f-8776-a13b8fdcf1f6)  ..!  #~ [𝑺𝑻𝑬𝑨𝑴](https://steamcommunity.com/profiles/76561199133856962/) ~# ... .!  ~![Image](https://github.com/user-attachments/assets/9043ea44-44c3-4918-bd84-caa6ac708386) ~ ..!   #~ [𝑺𝑻𝑹𝑨𝑾𝑷𝑨𝑮𝑬](https://raydog.straw.page) ~# ![Image](https://github.com/user-attachments/assets/a1ca07d1-2e25-4e3f-8776-a13b8fdcf1f6) ..... ![Image](https://github.com/user-attachments/assets/9043ea44-44c3-4918-bd84-caa6ac708386)
-
-![Image](https://github.com/user-attachments/assets/8f0818f6-242c-47a2-9268-545b35d14c49)
-
-
-CREDITS_____________________________________________________________________________________________
-
-pixels: @zerowhy on tumblr . divider: @selysie on tumblr . graphics: @engravedives on tumblr
+![honkai-star-rail-hsr](https://github.com/user-attachments/assets/f563c932-c35e-4de6-b9b4-81639b145255)
+## DNC NOR TAKE INSPO FROM MY SKINS!!
 
