@@ -1,6 +1,9 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=DOGq3&color=lightgray)
-
-![honkai-star-rail-hsr](https://github.com/user-attachments/assets/f563c932-c35e-4de6-b9b4-81639b145255)
-## DNC NOR TAKE INSPO FROM MY SKINS!!
-
-(wip...!) [..505..](https://www.youtube.com/watch?v=qU9mHegkTc4)
+<p align="center">
+  <img width="200" height="40" src="https://komarev.com/ghpvc/?username=DOGq3&color=lightgray">
+</p>
+<p align="center">
+  <img width="460" height="330" src="https://github.com/user-attachments/assets/d8cb734a-5e27-4701-9625-dde0e3dfa742">
+</p>
+<p align="center">
+DNC NOR TAKE INSPO FROM MY SKINS!!
+</p>
