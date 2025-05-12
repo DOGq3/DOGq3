@@ -1,4 +1,6 @@
-
+<p align="center">
+"𝙒𝙚 𝙧𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙩𝙝𝙚 𝙥𝙖𝙨𝙩 𝙩𝙤 𝙬𝙖𝙡𝙠 𝙞𝙣𝙩𝙤 𝙩𝙝𝙚 𝙛𝙪𝙩𝙪𝙧𝙚"
+</p>
 <p align="center">
 <a href="https://hits.sh/github.com/DOGq3/"><img alt="Hits" src="https://hits.sh/github.com/DOGq3.svg?label=STAR%20GAZERS&color=dfd4bd&labelColor=5a5151"/></a>
 </p>
