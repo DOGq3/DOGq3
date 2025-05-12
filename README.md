@@ -14,3 +14,8 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
 <p align="center">
    (close friends are allowed to take inspo)
 </p>
+<img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced">
+
+
+
+![Image](https://github.com/user-attachments/assets/02b3706f-9260-42c3-bcef-ec1dfa814c22)
