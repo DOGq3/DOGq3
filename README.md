@@ -14,9 +14,6 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
 <p align="center">
    (close friends are allowed to take inspo)
 </p>
-<p align="center">
-   u can take color inspo i dont own the colors..!!
-</p>
 
 <p align="center">
   i have finals rn so semi-active / not really active...
