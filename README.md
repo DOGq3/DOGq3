@@ -12,7 +12,7 @@
 DNC NOR TAKE INSPO FROM MY SKINS!!
 </p>
 <p align="center">
-   (close friends are allowed to take inspo)
+   (friends are allowed to take inspo just ask ^^)
 </p>
 
 <p align="center">
