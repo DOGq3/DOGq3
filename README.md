@@ -16,10 +16,10 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
 </p>
 
 <p align="center">
-  i have finals rn so semi-active / not really active...
+ FINALLY DONE WITH FINALSSS
 </p>
 <p align="center">
-  if im online w2i because im either studying / off-tab
+  if im online w2i because i might be off-tab
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced">
