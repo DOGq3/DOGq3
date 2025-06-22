@@ -16,7 +16,7 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
 </p>
 
 <p align="center">
- FINALLY DONE WITH FINALSSS
+ i will rmk rentry trust
 </p>
 <p align="center">
   if im online w2i because i might be off-tab
