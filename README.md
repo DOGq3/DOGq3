@@ -6,7 +6,7 @@
 "𝙒𝙚 𝙧𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙩𝙝𝙚 𝙥𝙖𝙨𝙩 𝙩𝙤 𝙬𝙖𝙡𝙠 𝙞𝙣𝙩𝙤 𝙩𝙝𝙚 𝙛𝙪𝙩𝙪𝙧𝙚"
 </p>
 <p align="center">
-  <img width="460" height="330" src="https://github.com/user-attachments/assets/1a193b0d-0732-480d-bf01-f6d6222842ed">
+  <img width="460" height="330" src="https://github.com/user-attachments/assets/70a06e59-be2b-40ef-bb12-81d91631b9f3">
 </p>
 <p align="center">
 DNC NOR TAKE INSPO FROM MY SKINS!!
