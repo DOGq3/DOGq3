@@ -25,7 +25,7 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
   ASK FOR DISCORDD!!!!
 </p>
 <p align="center">
-school just started someone shoot me
+someone shoot me i have so many tests
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced">
