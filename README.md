@@ -25,7 +25,7 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
   ASK FOR DISCORDD!!!!
 </p>
 <p align="center">
-SCHOOL STARTED AGAIN IM DEAD pray for mental health ts is gonna be the end of me
+btw im like VERYYYYY shy with ppl i dont know or just met so bare with me if u want int/w2i first bc i WONT
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced">
