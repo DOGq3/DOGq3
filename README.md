@@ -2,7 +2,7 @@
   <img width="1000" height="330" src="https://github.com/user-attachments/assets/aa945a26-315d-4cc7-a317-b194e804278e">
 </p>
 <p align="center">
-<a href="https://hits.sh/github.com/DOGq3/"><img alt="Hits" src="https://hits.sh/github.com/DOGq3.svg?label=OTOMO&color=brightgreen&labelColor=5a5151"/></a>
+<a href="https://hits.sh/github.com/DOGq3/"><img alt="Hits" src="https://hits.sh/github.com/DOGq3.svg?label=OTOMOS&color=brightgreen&labelColor=5a5151"/></a>
 </p>
 <p align="center">
 "𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
