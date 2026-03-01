@@ -1,9 +1,11 @@
-![Image](https://github.com/user-attachments/assets/02b3706f-9260-42c3-bcef-ec1dfa814c22)
 <p align="center">
-<a href="https://hits.sh/github.com/DOGq3/"><img alt="Hits" src="https://hits.sh/github.com/DOGq3.svg?label=STAR%20GAZERS&color=dfd4bd&labelColor=5a5151"/></a>
+  <img width="1000" height="330" src="https://github.com/user-attachments/assets/aa945a26-315d-4cc7-a317-b194e804278e">
 </p>
 <p align="center">
-"𝙒𝙚 𝙧𝙚𝙢𝙚𝙢𝙗𝙚𝙧 𝙩𝙝𝙚 𝙥𝙖𝙨𝙩 𝙩𝙤 𝙬𝙖𝙡𝙠 𝙞𝙣𝙩𝙤 𝙩𝙝𝙚 𝙛𝙪𝙩𝙪𝙧𝙚"
+<a href="https://hits.sh/github.com/DOGq3/"><img alt="Hits" src="https://hits.sh/github.com/DOGq3.svg?label=OTOMO&color=brightgreen&labelColor=5a5151"/></a>
+</p>
+<p align="center">
+"𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
 </p>
 <p align="center">
   <img width="460" height="330" src="https://github.com/user-attachments/assets/70a06e59-be2b-40ef-bb12-81d91631b9f3">
@@ -28,12 +30,17 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
 btw im like VERYYYYY shy with ppl i dont know or just met so bare with me, if u want int, int first bc i WONT
 </p>
 
-<img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/bbb7dbce-578b-4c97-b2cb-6c1fc1899ced">
+<img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46">
 
-<p align="center"><img width="100" height="50" src="https://github.com/user-attachments/assets/c9fbb652-b1d6-4998-9896-d66cebe2016f"></p>
+<p align="center"><img width="100" height="50" src="https://github.com/user-attachments/assets/9f734cb7-5254-4304-bb76-464a1556373d"></p>
 
 
-![Image](https://github.com/user-attachments/assets/02b3706f-9260-42c3-bcef-ec1dfa814c22)
+<p align="center">
+  <img width="1000" height="330" src="https://github.com/user-attachments/assets/aa945a26-315d-4cc7-a317-b194e804278e">
+</p>
 
 ---
-ᴄʀᴇᴅɪᴛꜱ ᴛᴏ: @ᴇɴᴄʜᴀɴᴛʜɪɴɢꜱ ᴏɴ ᴛᴜᴍʙʟʀ. @ᴄʜᴇᴇᴢɪᴛᴏꜰᴛʜᴇᴠᴀʟʟᴇʏ ᴏɴ ᴛᴜᴍʙʟʀ . @ᴠɪʀᴜʟᴇɴᴛɪɴᴀɴɪᴛʏ ᴏɴ ᴛᴜᴍʙʟʀ
+𝘤𝘳𝘦𝘥𝘪𝘵𝘴: @𝘪𝘮𝘢𝘨𝘦𝘧𝘪𝘳𝘦 / 𝘧𝘰𝘳𝘨𝘰𝘵 𝘸𝘩𝘦𝘳𝘦 𝘪 𝘨𝘰𝘵 𝘵𝘩𝘦 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘧𝘳𝘰𝘮 𝘪𝘭𝘭 𝘧𝘪𝘯𝘥 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘤𝘳𝘦𝘥𝘪𝘵 𝘵𝘩𝘦𝘮
+
+
+
