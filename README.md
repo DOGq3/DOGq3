@@ -27,7 +27,7 @@ DNC NOR TAKE INSPO FROM MY SKINS!!
   ASK FOR DISCORDD!!!!
 </p>
 <p align="center">
-btw im like VERYYYYY shy with ppl i dont know or just met so bare with me, if u want int, int first bc i WONT
+btw im like VERYYYYY shy with ppl i dont know or just met so bare with me, if u want to int, int first bc i'm too shy to int first
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46">
