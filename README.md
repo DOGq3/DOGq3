@@ -11,10 +11,10 @@
   <img width="460" height="330" src="https://github.com/user-attachments/assets/6c24069d-2fc0-422a-b621-532dc925bddd">
 </p>
 <p align="center">
-DNC NOR TAKE INSPO FROM MY SKINS!!
+dnc my skins!!! 
 </p>
 <p align="center">
-   (friends are allowed to take inspo just ask ^^)
+   (idrm inspo just ask^^)
 </p>
 
 <p align="center">
