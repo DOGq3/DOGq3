@@ -17,9 +17,7 @@ dnc my skins!!!
    (idrm inspo just ask^^)
 </p>
 
-<p align="center">
- i will rmk rentry trust
-</p>
+
 <p align="center">
   if im online w2i because i might be off-tab
 </p>
@@ -27,7 +25,7 @@ dnc my skins!!!
   ASK FOR DISCORDD!!!!
 </p>
 <p align="center">
-btw im like VERYYYYY shy with ppl i dont know or just met so bare with me, if u want to int, int first bc i'm too shy to int first
+  <a href="https://rentry.co/justchad">rentry</a>
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46">
