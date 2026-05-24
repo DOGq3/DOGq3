@@ -8,7 +8,7 @@
 "𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
 </p>
 <p align="center">
-  <img width="560" height="330" src="https://github.com/user-attachments/assets/6c24069d-2fc0-422a-b621-532dc925bddd">
+ <img width="292" height="366" alt="Image" src="https://github.com/user-attachments/assets/2ca9a76e-85cf-4a88-baf7-02b18666c09d" />
 </p>
 <p align="center">
 dnc my skins!!! 
