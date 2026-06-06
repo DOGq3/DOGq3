@@ -25,7 +25,7 @@ dnc my skins!!!
   ASK FOR DISCORDD!!!!
 </p>
 <p align="center">
-  <a href="https://rentry.co/justchad">rentry</a>
+  <a href="https://rentry.co/justchad">rentry</a> . <a href="https://guns.lol/dogq3">guns.lol</a> . <a href="https://dogq3.straw.page/">strawpage</a>
 </p>
 
 <img align="left" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46"> <img align="right" width="50" height="50" src="https://github.com/user-attachments/assets/119f7374-0314-42b8-81a3-525d4c77bf46">
