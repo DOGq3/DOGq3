@@ -9,7 +9,10 @@
 "𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
 </p>
 <p align="center">
- <img width="292" height="366" alt="Image" src="https://github.com/user-attachments/assets/2ca9a76e-85cf-4a88-baf7-02b18666c09d" />
+<img width="640" height="480" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
+</p>
+<p align="center">
+i love this automaton sm..FOREVER AN OTOMO!!
 </p>
 <p align="center">
 dnc my skins!!! 
