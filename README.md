@@ -9,7 +9,7 @@
 "𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
 </p>
 <p align="center">
-<img width="640" height="480" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
+<img width="540" height="380" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
 </p>
 <p align="center">
 i love this automaton sm..FOREVER AN OTOMO!!
