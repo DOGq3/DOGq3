@@ -12,7 +12,10 @@
 <img width="540" height="380" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
 </p>
 <p align="center">
-i love this automaton sm..FOREVER AN OTOMO!!
+kami oshi: cecilia immergreen
+</p>
+<p align="center">
+oshi: raora panthera (and all of holo en lmao)
 </p>
 <p align="center">
 dnc my skins!!! 
