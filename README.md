@@ -12,24 +12,25 @@
 <img width="540" height="380" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
 </p>
 <p align="center">
-kami oshi: cecilia immergreen
+ㅤㅤ ㅤㅤ ㅤ‧₊ ♪˚⊹ ㅤ kami oshi ㅤ :: ㅤ cecilia immergreenㅤ ㅤ 
 </p>
 <p align="center">
-oshi: raora panthera (and all of holo en lmao)
+ㅤㅤㅤㅤㅤㅤ𑄝੭ oshi ㅤ :: ㅤ raora panthera + holo en
 </p>
 <p align="center">
-dnc my skins!!! 
+ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center">
-   (idrm inspo just ask^^)
-</p>
-
-
-<p align="center">
-  if im online w2i because i might be off-tab
+ㅤㅤ ㅤㅤ ㅤㅤ ⋆˚࿔ᝰ.ᐟ ㅤ dnc my skins ㅤ [ ask for inspo ]
 </p>
 <p align="center">
-  ASK FOR DISCORDD!!!!
+ㅤ ᯓ✦∘˙ ㅤ w2i if online ㅤ [ might be off-tab ]
+</p>
+<p align="center">
+ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</p>
+<p align="center">
+ㅤㅤ ㅤ ㅤ ㅤ ask for discord!! ㅤ ᯓ✦∘˙
 </p>
 <p align="center">
   <a href="https://rentry.co/justchad">rentry</a> . <a href="https://guns.lol/dogq3">guns.lol</a> . <a href="https://dogq3.straw.page/">strawpage</a> .  <a href="https://dogq3.atabook.org/">atabook</a>
