@@ -30,7 +30,7 @@
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center">
-ask for discord!! ㅤ ᯓ✦∘˙
+gh rmk soon!! ㅤ ᯓ✦∘˙
 </p>
 <p align="center">
   <a href="https://rentry.co/justchad">rentry</a> . <a href="https://guns.lol/dogq3">guns.lol</a> . <a href="https://dogq3.straw.page/">strawpage</a> .  <a href="https://dogq3.atabook.org/">atabook</a>
