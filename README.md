@@ -15,7 +15,7 @@
 ‧₊ ♪˚⊹ ㅤ kami oshi ㅤ :: ㅤ cecilia immergreenㅤ ㅤ 
 </p>
 <p align="center">
-ㅤㅤㅤㅤㅤㅤ𑄝੭ oshi ㅤ :: ㅤ raora panthera + holo en
+ㅤㅤㅤㅤㅤㅤ𑄝੭ oshi ㅤ :: ㅤ raora panthera + holo EN
 </p>
 <p align="center">
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
