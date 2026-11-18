@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-"𝙨𝙥𝙞𝙣 𝙩𝙤 𝙬𝙞𝙣!"
+"𝙋𝙚𝙧𝙛𝙚𝙘𝙩𝙞𝙤𝙣, 𝙮𝙤𝙪 𝙨𝙚𝙘𝙡𝙪𝙙𝙚 𝙢𝙚"
 </p>
 <p align="center">
 <img width="540" height="380" alt="Image" src="https://github.com/user-attachments/assets/4f5ebd02-3674-4c5c-900f-358b85ae9d49" />
