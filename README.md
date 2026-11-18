@@ -9,7 +9,7 @@
 "𝙋𝙚𝙧𝙛𝙚𝙘𝙩𝙞𝙤𝙣, 𝙮𝙤𝙪 𝙨𝙚𝙘𝙡𝙪𝙙𝙚 𝙢𝙚"
 </p>
 <p align="center">
-<img width="540" height="380" alt="Image" src="https://github.com/user-attachments/assets/bdc5b734-374d-453c-8daf-9dbd69089308" />
+<img width="630" height="350" alt="Image" src="https://github.com/user-attachments/assets/bdc5b734-374d-453c-8daf-9dbd69089308" />
 </p>
 
 <p align="center">
